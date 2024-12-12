@@ -16,4 +16,4 @@
 
 - 💬 Ask me about **Web3, MERN, DSA**
 
-- 📫 How to reach me **competitivecoder69@gmail.com**
+- 📫 How to reach me **propfundedtrader69@gmail.com**
